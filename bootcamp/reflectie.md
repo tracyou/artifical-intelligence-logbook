@@ -1,0 +1,7 @@
+# Reflectie bootcamp
+
+In deze tekst reflecteer ik over het bootcamp van de laatste twee weken.
+
+Voor de lessen van het bootcamp had ik me niet voorbereid. Hierdoor vond ik dat de uitleg moeilijker te volgen was, omdat ik in een korte termijn veel nieuwe termen en informatie kreeg. Om dezelfde reden liep ik ook regelmatig vast bij het maken van de opdrachten. Het was niet duidelijk voor mij hoe ik de opdrachten moest aanpakken. Eerst kon ik alles nog net bijhouden, als ik de tijd nam om buiten de lessen verder te orienteren over de stof waarover er was besproken. Dit probleem merkte ik al vanaf het begin van de bootcamp. Alleen, als ik eerlijk met mezelf moet zijn, nam ik het niet serieus. Het was niet totdat week 2 aan brak dat bijhouden van alles moeilijker voor mij was. Op een gegeven moment stapelde de opdrachten voor mij op en was het in eerste instatie onduidelijk voor mij hoe ik de opdrachten moest doen. Gelukkig, kon ik daarbij wel hulp krijgen van mijn squad.
+
+Vanwege wat er gebeurd is probeer ik tijdens de minor meer te gaan voorbereiden en proberen meer te doen aan mijn communicatie. Doordat ik zoveel moeite had met het verwerken van alle nieuwe onderwerpen die er tot nu toe aan bod zijn gekomen, probeer ik mezelf voortaan voor te bereiden. Wat ik aan mijn communicatie wil verbeteren is dat ik sneller aan de bel moet trekken en vragen stellen. Uit mezelf vraag pas hulp als het echt niet anders kan, wat in de meeste gevallen ook laat kan zijn. De bootcamp maakte het helder dat alles voor mij snel kan escaleren, als ik het niet doe.
